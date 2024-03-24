@@ -12,6 +12,8 @@
 <h4 align="center">
 
 
+𐙚  [she](https://retrospring.net/@colazero)  .ᐟ    [15](https://bundles.cc/colazero)
+</h4> 
 
 <h5 align="center">
 <img src="https://i.postimg.cc/Bvtx1cxL/Untitled268-20240324022440.png"/>

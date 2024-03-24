@@ -1,3 +1,18 @@
-will edit this!
-name is bonnine / ryuno !!
-fit basic dni blah blah i block freely.
+<h5 align="center">
+<img src="https://i.postimg.cc/sXRt2XhL/Untitled268-20240324022416.png"/>
+</h5>  
+
+
+<h4 align="center">
+
+</h4> 
+<h5 align="center">
+<img src="https://i.postimg.cc/PxDjFYQP/Untitled257-20240324015533.png"/>
+</h5>  
+<h4 align="center">
+
+
+
+<h5 align="center">
+<img src="https://i.postimg.cc/Bvtx1cxL/Untitled268-20240324022440.png"/>
+</h5>  

@@ -1,5 +1,5 @@
 <h5 align="center">
-<img src="https://i.postimg.cc/sXRt2XhL/Untitled268-20240324022416.png"/>
+<img src="https://i.postimg.cc/tT60hzW5/Untitled279-20240325030724.png"/>
 </h5>  
 
 
@@ -7,14 +7,14 @@
 
 </h4> 
 <h5 align="center">
-<img src="https://i.postimg.cc/PxDjFYQP/Untitled257-20240324015533.png"/>
+<img src="https://i.postimg.cc/W3mvBnz4/Untitled277-20240325023357.png"/>
 </h5>  
 <h4 align="center">
 
-
-𐙚  [she](https://retrospring.net/@colazero)  .ᐟ    [15](https://bundles.cc/colazero)
+<h5 align="center">
+𐙚  $\text{\color{purple}{bonnie \ ‐ \ she/her}}$  .ᐟ 
 </h4> 
 
 <h5 align="center">
-<img src="https://i.postimg.cc/Bvtx1cxL/Untitled268-20240324022440.png"/>
+<img src="https://i.postimg.cc/SxQJDnZ8/Untitled280-20240325030816.png"/>
 </h5>  
